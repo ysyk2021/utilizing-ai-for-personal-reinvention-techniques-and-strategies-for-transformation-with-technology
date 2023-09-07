@@ -14,3 +14,7 @@ In this book, you will learn:
 Whether you're a student, entrepreneur, or professional, "Utilizing AI for Personal Reinvention" offers valuable insights into how AI can be used as a transformative tool for personal growth and development. By learning to harness the power of AI, you can unlock your full potential and achieve your goals in new and exciting ways.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
