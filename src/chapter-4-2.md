@@ -1,5 +1,4 @@
-**Chapter: Enhancing Cognitive Performance with AI-Powered Brain Training and Learning**
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

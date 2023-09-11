@@ -1,5 +1,4 @@
-**Chapter: Identifying Areas of Personal Life that can be Improved with AI**
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

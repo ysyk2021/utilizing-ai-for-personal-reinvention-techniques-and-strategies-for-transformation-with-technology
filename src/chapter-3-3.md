@@ -1,5 +1,4 @@
-**Chapter: Creating a Customized AI Roadmap for Personal Transformation**
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
